@@ -1,2 +1,3 @@
 # hello-world
 Hello-world repo 
+BI DEVELOPER - LOVER OF SQL BLACK COFFEE AND CONSPIRACIES 
